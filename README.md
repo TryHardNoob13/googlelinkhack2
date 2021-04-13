@@ -1,1 +1,3 @@
 # googlelinkhack
+
+[google.com]
