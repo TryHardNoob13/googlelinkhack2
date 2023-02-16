@@ -1,7 +1,7 @@
-# hacncheese
+# don't share! LIke fr don't
 
-[https://www.google.com] <-unblocked google tab
+[https://www.google.com] 
 
-doooooo it ^
+we have to keep this a thing as long as possible.
 
 
