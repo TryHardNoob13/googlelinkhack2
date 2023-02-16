@@ -1,4 +1,4 @@
-# hacncheese
+# hacncheese is f* weird
 
 ([www.google.com]) <-- unblocked google tab
 
