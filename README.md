@@ -1,7 +1,7 @@
-# don't share! Like fr don't
+# hacncheese
 
-[[www.google.com]]([github.com])
+[[www.google.com]]([github.com]) <-- unblocked google tab
 
-we have to keep this a thing as long as possible.
+doooooooo it ^^^
 
 
