@@ -1,5 +1,5 @@
-# Today is feb. 23
-## #National Defender of the Fatherland Day.
+# Today is feb. 24
+## #National Clam Chowder Day.
 
 ### [Google](https://google.com)  <---Click here
 
