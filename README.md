@@ -10,6 +10,8 @@
 
 [Pringles Gmaes](https://ellieeet123.github.io)
 
+[Chess.com](https://www.chess.com)
+
 
 ------------------------------------------------
 #### v Movie Sites v
