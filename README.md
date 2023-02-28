@@ -20,7 +20,7 @@
 
 [Disney+](https://www.disneyplus.com)
 
-[Soap2Day](soap2day.to)
+[Soap2Day](https://www.soap2day.to)
 
 
 ------------------------------------------------
