@@ -8,7 +8,7 @@
 
 [Crazy Games](https://www.crazygames.com)
 
-[Chess](chess.com)
+[Chess](https://www.chess.com)
 
 [Pringles Gmaes](https://ellieeet123.github.io)
 
