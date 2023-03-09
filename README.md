@@ -1,5 +1,5 @@
 # Today is Mar. 9
-## #Slam the Scam Day.
+## #Annual Slam the Scam Day.
 
 
 ------------------------------------------------
