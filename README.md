@@ -1,5 +1,5 @@
-# Today is Mar. 9
-## #Annual Slam the Scam Day.
+# Today is Mar. 10
+## #National Harriot Tubman Day.
 
 
 ------------------------------------------------
