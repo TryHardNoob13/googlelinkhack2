@@ -27,7 +27,7 @@
 
 [Soap2Day](https://www.soap2day.to)
 
-[Prime Video[(https://www.amazon.com)
+[Prime Video](https://www.amazon.com)
 
 
 ------------------------------------------------
