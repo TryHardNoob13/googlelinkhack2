@@ -27,6 +27,8 @@
 
 [Soap2Day](https://www.soap2day.to)
 
+[Prime Video[(https://www.amazon.com)
+
 
 ------------------------------------------------
 #### v Regular Tab v
